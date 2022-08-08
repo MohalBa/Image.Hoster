@@ -1,1 +1,1 @@
-Upgrad Assignment Image.Hoster
+Upgrad Assignment - Image.Hoster
